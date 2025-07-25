@@ -1,5 +1,5 @@
 <h2 align="center">
-    ─˹𝐓ɪᴅᴀʟ ꭙ ᴍᴜsɪᴄ˼─
+    hehe
 
 </h2>
 
